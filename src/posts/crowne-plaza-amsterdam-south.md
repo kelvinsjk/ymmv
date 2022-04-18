@@ -13,10 +13,10 @@ tags:
 
 ### 2016 
 
-* Price Paid: 60,000 Points/2 nights
+* Price Paid: 304.84EUR/2 nights
 * Room: 1 King Bed Superior
-* Rate: Points Redemption
+* Rate: Advance Purchase with Breakfast
 
 ## Rating
 
-5 Stars: Above and Beyond Expectation
+4 Stars: Above Expectations
