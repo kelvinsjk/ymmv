@@ -17,6 +17,13 @@ tags:
 * Room: 1 Queen Standard
 * Rate: Advance Purchase
 
+## 2017
+
+* Price Paid: 262.77SGD/1 night
+* Room: 1 Queen Standard
+* Rate: 1000 Bonus Points
+
+
 ## Rating
 
 3 Stars: Meets Expectation
